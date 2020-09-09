@@ -1,2 +1,2 @@
-# Keys-For-nitro-that-are-not-supposed-to-be
+# THE TRUTH
 this is the truth and only the truth about this server
